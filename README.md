@@ -2,7 +2,6 @@
 
 ---
 
-                                                                   WIP ! 
-
+                                                              wip as im kinda getting used to this !! 
 ---
 
