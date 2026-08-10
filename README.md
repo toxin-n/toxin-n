@@ -4,8 +4,12 @@
 
 the noibat is called chuckers. hes my pokemon i caught in scarlet and voilet. WE all love chuckers . 
 ---
+NOTE !! 
 
 DONT copy my skins / dont upload them to ANY platforms. if u see anyone doing this please let me know or tell them take it down / stop copying me. thank you ! 
+---
+
+im also learning french. no i cant speak full sentances so dont try to as i wont know what the fuck ur on about :CRY: IM SO SORRY. im mostly learning it due to my bf is french ^_^
 
 --
 
