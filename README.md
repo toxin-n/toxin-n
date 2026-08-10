@@ -1,4 +1,5 @@
-<img width="344" height="212" alt="image" src="https://github.com/user-attachments/assets/ea7d6282-22b2-4d96-9bac-ea6b235b30dd" />
+<img width="344" height="212" alt="05d1eec455e4e882ab5bd09f04abbd96" src="https://github.com/user-attachments/assets/6e50efc7-4144-4cd7-8315-5b4b66d4d624" />
+
 
 
 the noibat is called chuckers. hes my pokemon i caught in scarlet and voilet. WE all love chuckers . 
