@@ -1,3 +1,11 @@
-<img width="524" height="400" alt="pony-town-&#39; heart to heart &#39; _ toxin-boop-sit-hearts-name-fixed-padded-4x" src="https://github.com/user-attachments/assets/68a198bf-2ae6-4cbb-b3cc-97e461b92ea0" />
+<img width="344" height="212" alt="image" src="https://github.com/user-attachments/assets/ea7d6282-22b2-4d96-9bac-ea6b235b30dd" />
 
-my main skin for now , DONT COPY IT . nor dont copy any of my skins , i will update this if i have a new main skin ! 
+
+the noibat is called chuckers. hes my pokemon i caught in scarlet and voilet. WE all love chuckers . 
+---
+
+DONT copy my skins / dont upload them to ANY platforms. if u see anyone doing this please let me know or tell them take it down / stop copying me. thank you ! 
+
+--
+
+I HAVE A MASSIVE OBSESSION WITH POKEMON !! its my main fandom and i love it. i might bring it up multiple times.
