@@ -1,15 +1,13 @@
 <img width="344" height="212" alt="05d1eec455e4e882ab5bd09f04abbd96" src="https://github.com/user-attachments/assets/6e50efc7-4144-4cd7-8315-5b4b66d4d624" />
 
+︵︵︵ ๑ ♡ ๑ ︵︵︵  
 
+im autistic, so i may struggle with convosations and fitting in. please be patient with me. as i dont verbally say im autistic to people on pony town. so u will find it out by reading it here
 
-the noibat is called chuckers. hes my pokemon i caught in scarlet and voilet. WE all love chuckers . 
----
-DONT copy my skins / dont upload them to ANY platforms. if u see anyone doing this please let me know or tell them take it down / stop copying me. thank you ! 
+︵︵︵ ๑ ♡ ๑ ︵︵︵  
 
----
+please use tonetags somtimes, i REALLY struggle to read tone so tone tags help me ALOT ! ^_^
 
-im also learning french. no i cant speak full sentances so dont try to as i wont know what the fuck ur on about :CRY: IM SO SORRY. im mostly learning it due to my bf is french ^_^
+︵︵︵ ๑ ♡ ๑ ︵︵︵  
 
---
-
-I HAVE A MASSIVE OBSESSION WITH POKEMON !! its my main fandom and i love it. i might bring it up multiple times.
+this is also a wip bz i honestly dont know how to make my pf so cool like others do for their pony town :_3
