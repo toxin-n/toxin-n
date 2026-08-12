@@ -10,4 +10,8 @@ please use tonetags somtimes, i REALLY struggle to read tone so tone tags help m
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵  
 
+IM ALLSO LEARNING FRENCH FOR MY BF ! AS HES FRENCH ! i do not know alot and i cant do convos with other ppl in french. so no i cant talk to yall in french im sorry guys
+
+︵︵︵ ๑ ♡ ๑ ︵︵︵  
+
 this is also a wip bz i honestly dont know how to make my pf so cool like others do for their pony town :_3
