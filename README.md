@@ -1,17 +1,16 @@
-<img width="344" height="212" alt="05d1eec455e4e882ab5bd09f04abbd96" src="https://github.com/user-attachments/assets/6e50efc7-4144-4cd7-8315-5b4b66d4d624" />
+<img width="278" height="294" alt="Manju_gacha_animation" src="https://github.com/user-attachments/assets/f71b7771-a3f7-4e63-b87a-488d70621252" />
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵  
 
-im autistic, so i may struggle with convosations and fitting in. please be patient with me. as i dont verbally say im autistic to people on pony town. so u will find it out by reading it here
+nonsharing yumeshipper , i use it to cope with alot of trauma i have ^.^  - manju cookie is my f/o 
+- i dont really know how to make my github look really nice okay.
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵  
+stupid info bout me
+-im transmasculine , 
+- im british wahoo, my accent Sucks balls.
+- im also gay. and taken by my boyfreind
 
-please use tonetags somtimes, i REALLY struggle to read tone so tone tags help me ALOT ! ^_^
-
-︵︵︵ ๑ ♡ ๑ ︵︵︵  
-
-IM ALLSO LEARNING FRENCH FOR MY BF ! AS HES FRENCH ! i do not know alot and i cant do convos with other ppl in french. so no i cant talk to yall in french im sorry guys
-
-︵︵︵ ๑ ♡ ๑ ︵︵︵  
-
-this is also a wip bz i honestly dont know how to make my pf so cool like others do for their pony town :_3
+im autistic so i may be passonate about certain stuff, and i can be really moodswingy at times
+- ( no i wouldnt choose manju over my irl boyfreind, manju is a fictional character. )
+- 
