@@ -2,5 +2,4 @@
 
 <p align="center">  [ https://pronouns.cc/@Toxin ]
 
-<p align="center">  <img width="198" height="112" alt="tumblr_020ec75f643ea583f84756da3af1eee4_7a4b9616_250" src="https://github.com/user-attachments/assets/373b1832-50c4-4bc8-9607-699f7aa6c283" 
-                      
+<p align="center"><img width="198" height="112" alt="tumblr_020ec75f643ea583f84756da3af1eee4_7a4b9616_250" src="https://github.com/user-attachments/assets/26298436-2504-4409-8282-53367e0dc005" />
