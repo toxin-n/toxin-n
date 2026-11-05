@@ -1,1 +1,1 @@
-<p style="text-align: center;">i love adopt me</p><img width="250" height="141" alt="tumblr_4ae41457ecbf0100cca890bc8272ffe4_75803ea9_250" src="https://github.com/user-attachments/assets/0e99eae9-62b4-4c06-a538-70c20f27a00a" /> idk how to customize this i lowk forgot.
+<img width="250" height="250" alt="9708962205" src="https://github.com/user-attachments/assets/fcb030cf-f187-49e8-ac13-f3f36fe33de8" />
