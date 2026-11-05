@@ -1,1 +1,1 @@
-check out my completely normal strawpage if u want to.. eeheh,,, ehehehhhhh. ALSO i like adopt me
+<p style="text-align: center;">i love adopt me</p><img width="250" height="141" alt="tumblr_4ae41457ecbf0100cca890bc8272ffe4_75803ea9_250" src="https://github.com/user-attachments/assets/0e99eae9-62b4-4c06-a538-70c20f27a00a" /> idk how to customize this i lowk forgot.
